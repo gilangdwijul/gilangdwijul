@@ -1,5 +1,5 @@
 
-# 👋 Halo, I'm Gilang Dwi Juliyanto! 🎉
+# 👋 Halo, I'm Gilang! 🎉
 
 ## 📋 Informasi Pribadi
 - **Nama**: Gilang Dwi Juliyanto
